@@ -23,7 +23,7 @@
 
 - 💬 Sobre mi: Me llamo Manuel, soy colombiano y me siento mas activo durante la noche, mi mayor sueño seria llegar a ser capaz de vivir a mi propio ritmo  
 
-- 🏠 Este es mi discord: [Z3R0](https://discord.com/channels/@me) my username!
+- 🏠 Este es mi discord: [Z3R0](https://discord.com/channels/@me) (Contactame por aquí)
 <!--Intro end-->
 
 
